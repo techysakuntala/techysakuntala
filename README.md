@@ -2,7 +2,7 @@
 - 👀 I’m interested in Codingy and Hacking
 - 🌱 I’m currently learning Red Teaming
 - 💞️ I’m looking to collaborate with a energetic tech savy out there
-- 📫 How to reach me: sakuntala2002@sec-ridge.com
+- 📫 How to reach me: sakuntala2002@gxbnt.me
 - 😄 Pronouns: dalli
 - ⚡ Fun fact: You though you got me but not this easy kid. HAhahaHA Noob LMAO!
 
